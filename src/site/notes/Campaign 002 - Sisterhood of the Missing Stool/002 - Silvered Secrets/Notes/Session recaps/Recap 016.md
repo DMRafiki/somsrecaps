@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/campaign-002-sisterhood-of-the-missing-stool/002-silvered-secrets/notes/session-recaps/recap-016/"}
+{"dg-publish":true,"permalink":"/Campaign 002 - Sisterhood of the Missing Stool/002 - Silvered Secrets/Notes/Session recaps/Recap 016/"}
 ---
 
 ### Sessie 16: De Ontsnapping uit de Mithril Glade
