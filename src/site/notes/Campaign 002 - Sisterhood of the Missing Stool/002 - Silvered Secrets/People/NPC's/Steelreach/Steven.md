@@ -9,4 +9,4 @@
 Steven's lange leven en ervaringen hebben hem gemaakt tot een zelfverzekerde en scherpzinnige leider, die altijd meerdere stappen vooruitdenkt. Hij waardeert loyaliteit, efficiëntie en subtiliteit, wat zijn selectieve vertrouwen in de groep verklaart. Zijn mysterieuze aard en kennis van zaken die buiten het bereik van velen liggen, geven hem een aura van macht en invloed binnen de schaduwen van **[[Campaign 002 - Sisterhood of the Missing Stool/002 - Silvered Secrets/Places/Steelreach\|Steelreach]]**.
 
 
-[[DM notes - Steven\|DM notes - Steven]]
+[[Campaign 002 - Sisterhood of the Missing Stool/002 - Silvered Secrets/People/NPC's/DM notes - Steven\|DM notes - Steven]]

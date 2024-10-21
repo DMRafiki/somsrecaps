@@ -21,3 +21,8 @@
 - [[Campaign 002 - Sisterhood of the Missing Stool/002 - Silvered Secrets/Notes/Session recaps/015 Een Nieuwe Opdracht\|015 Een Nieuwe Opdracht]]
 - [[Campaign 002 - Sisterhood of the Missing Stool/002 - Silvered Secrets/Notes/Session recaps/016 De Ontsnapping uit de Mithril Glade\|016 De Ontsnapping uit de Mithril Glade]]
 - [[Campaign 002 - Sisterhood of the Missing Stool/002 - Silvered Secrets/Notes/Session recaps/017 Terugkeer naar de Scrappers' Vault\|017 Terugkeer naar de Scrappers' Vault]]
+
+# Acquired Maps
+
+[[Gunderwal Map\|Gunderwal Map]]
+[[Rhyona Map\|Rhyona Map]]
