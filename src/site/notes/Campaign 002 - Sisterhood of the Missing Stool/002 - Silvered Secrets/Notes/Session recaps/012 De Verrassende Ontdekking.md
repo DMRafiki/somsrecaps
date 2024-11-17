@@ -4,7 +4,7 @@
 
 ## De Verrassende Ontdekking
 
-De groep brengt hun bevindingen naar **[[Campaign 002 - Sisterhood of the Missing Stool/002 - Silvered Secrets/People/NPC's/Steelreach/Steven\|Steven]]**. Ze hebben de rode doos gevonden, maar hebben nog steeds veel vragen die onbeantwoord zijn gebleven. Tot hun verbazing opent Steven snel de doos wanneer ze die overhandigen en haalt er een grote zilveren munt uit. Ze hadden de doos geopend en niets gevonden, hoe merkwaardig...
+De groep brengt hun bevindingen naar **[[Campaign 002 - Sisterhood of the Missing Stool/002 - Silvered Secrets/People/NPC_s/Steelreach/Steven\|Steven]]**. Ze hebben de rode doos gevonden, maar hebben nog steeds veel vragen die onbeantwoord zijn gebleven. Tot hun verbazing opent Steven snel de doos wanneer ze die overhandigen en haalt er een grote zilveren munt uit. Ze hadden de doos geopend en niets gevonden, hoe merkwaardig...
 
 Steven stuurt de groep op een nieuwe missie om zichzelf te bewijzen, aangezien hij nog niet overtuigd is van hun capaciteiten. Deze mysterieuze figuur lijkt meer informatie te hebben over de groep en hun acties dan hij zou moeten hebben. De missie die hen is toegewezen, is om een pakhuis buiten de stad te controleren. Steven wil dat ze een invasie van ogers opruimen en ervoor zorgen dat zijn goederen veilig en toegankelijk zijn.
 
